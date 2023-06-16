@@ -1,1 +1,1 @@
-hello world
+MAnutd na bastard 
